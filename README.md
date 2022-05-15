@@ -1,1 +1,1 @@
-My first Readme
+Iraya na Edu wanaelewa hizi vitu
